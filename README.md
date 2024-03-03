@@ -1,8 +1,6 @@
 ### Hi, I'm Hye Young.👋
 
-- 🌱 Learning Web full stack
-- 🤔 Active communication
-- 👯 Yoga is my hobby
+- 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 
 
 
 #
